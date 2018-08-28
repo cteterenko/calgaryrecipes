@@ -1,3 +1,4 @@
+# Ingredients
 Kosher salt
 
 24 jumbo pasta shells (about 10 oz)
